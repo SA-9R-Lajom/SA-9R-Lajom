@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning entrepreneurship and dealing with crypto/stocks//bonds
 - 📫 How to reach me: thru my email ONLY.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i want to own a 3-car garage consisting of a Dodge Charger Redeye Jailbreak, BMW X5M Competition, and a Chevrolet Corvette C8 Z06
+- ⚡ Fun fact: i want to own a 33-car garage 😎
 - 🏎️ Another Fun Fact: I LOVE CARS!
 
 - 🏴 DIEHARD FAN of House of Cards
